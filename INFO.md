@@ -1,4 +1,0 @@
-GIT IS AWESOME
-loh
-loh 2
-DADA
